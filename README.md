@@ -28,12 +28,10 @@ https://www.youtube.com/channel/UCa1slqbBTAcrWaQs3uSm0EQ
   
 **Class 16:** 8/20  
 **Class 17:** 8/22  
-  
-8/27, 8/29, 9/3 - no class  
-  
-**Class 18:** 9/5  
-**Class 19:** 9/10  
-**Class 20:** 9/12 
+    
+**Class 18:** 8/27  
+**Class 19:** 8/29  
+**Class 20:** 9/5 
 
 
 Enjoy!
